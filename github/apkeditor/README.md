@@ -1,0 +1,1 @@
+https://github.com/kefir500/apk-icon-editor/issues/5
