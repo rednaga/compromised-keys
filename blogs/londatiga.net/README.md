@@ -1,0 +1,1 @@
+http://www.londatiga.net/it/how-to-sign-apk-zip-files/
